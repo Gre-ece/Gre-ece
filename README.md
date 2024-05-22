@@ -1,4 +1,4 @@
 ## Hi there 👋
-Soy nueva aquí.
+Soy nueva.
 Y espero ser muy activa por aquí. 👩🏻‍💻
 
